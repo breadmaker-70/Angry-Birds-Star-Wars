@@ -232,4 +232,4 @@ Angry Birds Star Wars is the full free version, offering all features and update
 Join the battle against the imperial pigs today! Download Angry Birds Star Wars and let the force be with you!
 
 ---
-**Last updated:** 2026-09-24 13:08:13 UTC
+**Last updated:** 2026-09-24 18:08:20 UTC
